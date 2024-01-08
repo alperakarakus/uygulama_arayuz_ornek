@@ -1,0 +1,1 @@
+# uygulama_arayuz_ornek
